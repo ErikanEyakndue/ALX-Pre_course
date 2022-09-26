@@ -1,1 +1,1 @@
-upadted README file am ready to commiting to work
+its time to read me
